@@ -1,1 +1,1 @@
-# super-M-rio-bros.wii-
+# super-Mário-bros.wii-
